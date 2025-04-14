@@ -1,6 +1,6 @@
-Yo, Bitcoin GenZ fam! 👋
+Yo, Swarm fam! 👋
 
-We're building the future of finance, and that means making sure Bitcoin GenZ isn't just powerful and easy to use, but also super secure, totally transparent, and built with you, the community. Think dope features, smooth experiences, and knowing your money is safe and sound.
+We're building the future of finance, and that means making sure Swarm isn't just powerful and easy to use, but also super secure, totally transparent, and built with you, the community. Think dope features, smooth experiences, and knowing your money is safe and sound.
 
 Just a heads-up: this space is for the big picture. We won't be spamming you with every little update (like version numbers). For the latest news and release deets (like what's new and improved), keep an eye on our official channels.
 
